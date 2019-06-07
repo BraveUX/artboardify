@@ -1,4 +1,4 @@
-# Brave Artboardify
+# Brave Artboardify 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
 
 Keyboard shortcut: Control + Option + Command + P
 
